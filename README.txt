@@ -1,2 +1,0 @@
-Site por:
-Kevin Leonardo
